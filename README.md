@@ -1,1 +1,3 @@
 # SeaVortex-Mod
+
+ÇOK YAKINDA SİZİNLE OLUCAK
